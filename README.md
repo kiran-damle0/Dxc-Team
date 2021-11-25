@@ -1,2 +1,0 @@
-# cricket
-Indian Team 
